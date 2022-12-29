@@ -1,4 +1,4 @@
-# Hi My name is Amrita Prithiani
+# Hi, My name is Amrita Prithiani
 
 ----
 
